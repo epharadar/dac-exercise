@@ -2,4 +2,4 @@ This documentation describes how to use the Pavel exceptionally intelligent toot
 
 Note that this toothbrush is totally safe to use for children, adults, pets, wildlife, and trees.
 
-We will now tell you how to brush your teeth easily.
+We will now tell you how to brush your teeth with ease.
